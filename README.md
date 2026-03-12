@@ -28,6 +28,3 @@ Creds to:
 
 <p align="center">
 @Hxrlequinn on GitHub for finding the pictures & ect.
-
-<p align="center">
-@lavendergalactic on Tumblr for some of them blinkies.  
