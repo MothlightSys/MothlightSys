@@ -24,7 +24,10 @@
 Creds to:
 
 <p align="center">
-@PinkiePieExplosion for the Repository
+@PinkiePieExplosion on GitHub for the Repository creation.
 
 <p align="center">
-@Hxrlequinn for finding the pictures & ect.
+@Hxrlequinn on GitHub for finding the pictures & ect.
+
+<p align="center">
+@lavendergalactic on Tumblr for some of them blinkies.  
