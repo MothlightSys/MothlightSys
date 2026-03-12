@@ -4,14 +4,16 @@
 
 <img src="https://media.discordapp.net/attachments/1354917299051696221/1481772293867835665/Tumblr_l_1146878393135742.gif?ex=69b4877c&amp;is=69b335fc&amp;hm=9db01a0fb3593d351090630bd9295d76057960c0d1304884c0a41447e23161a7&amp;=&amp;width=101&amp;height=29" alt="Image"/> <img src="https://media.discordapp.net/attachments/1354917299051696221/1481772294144524388/Tumblr_l_1146880050131127.gif?ex=69b4877c&amp;is=69b335fc&amp;hm=3f0e1f5bce06deed23e28e69dd0d16c2154d55b82448fb4d8759e8c5715a8ecf&amp;=&amp;width=90&amp;height=29" alt="Image"/> <img src="https://media.discordapp.net/attachments/1354917299051696221/1481772294433935360/Tumblr_l_1146881562963050.gif?ex=69b4877c&amp;is=69b335fc&amp;hm=2b8362a9ef6286de8fba09a4b79095c31ec57f9bb61548c09b7c743ff0208092&amp;=&amp;width=240&amp;height=32" alt="Image"/> <img src="https://media.discordapp.net/attachments/1354917299051696221/1481772294794772490/Tumblr_l_1146883173808281.gif?ex=69b4877d&amp;is=69b335fd&amp;hm=981bbdde8b4ab197ba855279246afc9866f8260dc06a0ef426eb808f540ecb21&amp;=&amp;width=240&amp;height=32" alt="Image"/> <img src="https://media.discordapp.net/attachments/1354917299051696221/1481772364382470154/Tumblr_l_1146884707771358.gif?ex=69b4878d&amp;is=69b3360d&amp;hm=ab6971fa694df72f87a29f1e5de49ba74e58839549f2e0c6031b7b608ab923b6&amp;=&amp;width=240&amp;height=32" alt="Image"/> 
 
-<img src="https://images-ext-1.discordapp.net/external/TUWYgsljXebm42Z6Ot2pibixnTZw13WRZOLxw95F0kA/https/64.media.tumblr.com/7463c9ef87b540c728b4ee0bd4f1ca88/6d3b71bf33c7ffaf-27/s1280x1920/4249da2b27566dc189fef762c92a795cac6a70f3.pnj?format=webp&amp;width=1843&amp;height=107" alt="Image"/>
-
-
-
+<img src="https://private-user-images.githubusercontent.com/233820833/555674442-70a29c25-512c-42e0-a3f1-0e14302646ff.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzMzNTQ5MTYsIm5iZiI6MTc3MzM1NDYxNiwicGF0aCI6Ii8yMzM4MjA4MzMvNTU1Njc0NDQyLTcwYTI5YzI1LTUxMmMtNDJlMC1hM2YxLTBlMTQzMDI2NDZmZi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMzEyJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDMxMlQyMjMwMTZaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0zMDc0NmEyY2U0NDk0ZWJkNWY3OWI4MDU0NmQwY2JmYjZlMGM3ZDc1MGIwODJhZTM4N2IxZjVmYjU3ZDUwNDExJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.t4fqWzPUjsYss6Sth8Vfr65zy337LS0rcmWCMeeMqkA" alt="blinkiesCafe-v2"/>
 
 <img src="https://images-ext-1.discordapp.net/external/TUWYgsljXebm42Z6Ot2pibixnTZw13WRZOLxw95F0kA/https/64.media.tumblr.com/7463c9ef87b540c728b4ee0bd4f1ca88/6d3b71bf33c7ffaf-27/s1280x1920/4249da2b27566dc189fef762c92a795cac6a70f3.pnj?format=webp&amp;width=1843&amp;height=107" alt="Image"/>
 
-<img src="https://media.discordapp.net/attachments/1322396869149855826/1481776911209332747/Tumblr_l_1148184143440128.jpg?ex=69b48bc9&amp;is=69b33a49&amp;hm=82bcd60e1cdc55a5b3c13c33b9688ccbed5317b76d3f10b06f91c9ae918d3dd3&amp;=&amp;format=webp&amp;width=1600&amp;height=320" alt="Image"/>
+
+
+
+<img src="https://images-ext-1.discordapp.net/external/TUWYgsljXebm42Z6Ot2pibixnTZw13WRZOLxw95F0kA/https/64.media.tumblr.com/7463c9ef87b540c728b4ee0bd4f1ca88/6d3b71bf33c7ffaf-27/s1280x1920/4249da2b27566dc189fef762c92a795cac6a70f3.pnj?format=webp&amp;width=1843&amp;height=107" alt="Image"/>
+
+<img src="https://media.discordapp.net/attachments/1322396869149855826/1481781577313812672/1000041827-removebg-preview.png?ex=69b49022&amp;is=69b33ea2&amp;hm=1be56ad60491a71cff3c9e498570ad2ba243c2ffff97a7c4bcedaad2f869f176&amp;=&amp;format=webp&amp;quality=lossless&amp;width=1600&amp;height=320" alt="Image"/>
 
 -----------------------
 
