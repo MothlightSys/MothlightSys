@@ -47,7 +47,7 @@ Intro for Regect!
 23 y/o - taken / closed
 
 <p align="center">
-usually on DNI but feel free to sit with me. im not good socially and tend to be awkward or blunt with those who aren't friends.
+feel free to sit with me if you'd like. im not good socially and tend to be awkward or blunt with those who aren't friends, but im fine with chatting or being a shoulder to lean on if needed. do take note though I don't always come off as the friendliest, so im sorry in advance.
 
 <p align="center">
 <img src="https://files.catbox.moe/y75la4.GIF"/>
