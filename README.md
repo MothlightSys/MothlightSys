@@ -20,7 +20,7 @@ very socially awkward + anxious
 <img src="https://files.catbox.moe/t00vjl.gif"/>
 
 <p align="center">
-feel free to interact if youd like, cxh is usually okay just don't cover me
+feel free to interact if youd like, cxh is usually okay just don't cover me! other names to recognize me by is Saturn or siren ^_^
 
 <p align="center">
 main fronter with regect 99.9% of the time
