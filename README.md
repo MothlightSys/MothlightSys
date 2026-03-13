@@ -7,6 +7,7 @@
 
 <img src="https://images-ext-1.discordapp.net/external/TUWYgsljXebm42Z6Ot2pibixnTZw13WRZOLxw95F0kA/https/64.media.tumblr.com/7463c9ef87b540c728b4ee0bd4f1ca88/6d3b71bf33c7ffaf-27/s1280x1920/4249da2b27566dc189fef762c92a795cac6a70f3.pnj?format=webp&amp;width=1843&amp;height=107" alt="Image"/>
 
+<p align="center">
 " *There I am! there I am Again!* "
 
 
@@ -28,10 +29,7 @@ feel free to interact if youd like, cxh is usually okay just don't cover me! oth
 <p align="center">
 main fronter with regect 99.9% of the time
 
-
-
-
-
+<p align="center">
 " *I am the rot and the ache beneath your skin!* "
 
 <img src="https://images-ext-1.discordapp.net/external/TUWYgsljXebm42Z6Ot2pibixnTZw13WRZOLxw95F0kA/https/64.media.tumblr.com/7463c9ef87b540c728b4ee0bd4f1ca88/6d3b71bf33c7ffaf-27/s1280x1920/4249da2b27566dc189fef762c92a795cac6a70f3.pnj?format=webp&amp;width=1843&amp;height=107" alt="Image"/>
@@ -49,6 +47,7 @@ main fronter with regect 99.9% of the time
 
 <img src="https://images-ext-1.discordapp.net/external/FNtQLslUyD22rwI87kt6SiLjRLNcCiFXINwf4tpwf7I/https/64.media.tumblr.com/d421e110aa00d20508dc2ac452caedbf/d6d33a713f7452cb-a7/s2048x3072/34b94e0fa5c9a149acc7e3f77c90f546f18ffe65.pnj?format=webp&amp;width=1843&amp;height=139" alt="Image"/> 
 
+<p align="center">
 " *its my destiny to rot* "
 
 
@@ -70,6 +69,7 @@ I have many skins so to find me theyre usually named Crimson, regect, space, sou
 <p align="center">
 main host , very frequent fronter
 
+<p align="center">
 " *My great decay.* "
 
 <img src="https://images-ext-1.discordapp.net/external/FNtQLslUyD22rwI87kt6SiLjRLNcCiFXINwf4tpwf7I/https/64.media.tumblr.com/d421e110aa00d20508dc2ac452caedbf/d6d33a713f7452cb-a7/s2048x3072/34b94e0fa5c9a149acc7e3f77c90f546f18ffe65.pnj?format=webp&amp;width=1843&amp;height=139" alt="Image"/>
