@@ -29,6 +29,9 @@ feel free to interact if youd like, cxh is usually okay just don't cover me! oth
 main fronter with regect 99.9% of the time
 
 
+
+
+
 " *I am the rot and the ache beneath your skin!* "
 
 <img src="https://images-ext-1.discordapp.net/external/TUWYgsljXebm42Z6Ot2pibixnTZw13WRZOLxw95F0kA/https/64.media.tumblr.com/7463c9ef87b540c728b4ee0bd4f1ca88/6d3b71bf33c7ffaf-27/s1280x1920/4249da2b27566dc189fef762c92a795cac6a70f3.pnj?format=webp&amp;width=1843&amp;height=107" alt="Image"/>
