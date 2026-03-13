@@ -53,7 +53,7 @@ usually on DNI but feel free to sit with me. im not good socially and tend to be
 <img src="https://files.catbox.moe/y75la4.GIF"/>
 
 <p align="center">
-I have many skins, my skins are usually named Crimson, regect, space, soul, etc.
+I have many skins so to find me theyre usually named Crimson, regect, space, soul, etc.
 
 <p align="center">
 main host , very frequent fronter
