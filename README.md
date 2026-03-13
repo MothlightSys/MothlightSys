@@ -40,11 +40,11 @@ main fronter with regect 99.9% of the time
 
 <img src="https://images-ext-1.discordapp.net/external/FNtQLslUyD22rwI87kt6SiLjRLNcCiFXINwf4tpwf7I/https/64.media.tumblr.com/d421e110aa00d20508dc2ac452caedbf/d6d33a713f7452cb-a7/s2048x3072/34b94e0fa5c9a149acc7e3f77c90f546f18ffe65.pnj?format=webp&amp;width=1843&amp;height=139" alt="Image"/> 
 
+" *its my destiny to rot* "
+
+
 <p align="center">
 Intro for Regect!
-
-
-" *its my destiny to rot* "
 
 <p align="center">
 23 y/o - taken / closed
