@@ -48,8 +48,10 @@ alt="Image"/> <img src="https://media.discordapp.net/attachments/136293220124695
 alt="Image"/> <img srce="https://media.discordapp.net/attachments/1362932201246953625/1482106977457799399/bd077976f75017cb897b6350469de57b7b37cb54.gifv.gif?ex=69b5bf2f&amp;is=69b46daf&amp;hm=55bce46fe497a38e95ec943be2765c3a16ea3fd879108f490ac015576bc02819&amp;=&amp;width=240&amp;height=32" 
 alt="Image"/> <img src="https://media.discordapp.net/attachments/1362932201246953625/1482106975247663134/d1dbb0947da7585477df997f2d048bb9fcfb59bb.gifv.gif?ex=69b5bf2f&amp;is=69b46daf&amp;hm=131ca2430ad7fdfc029b12ffbfeff5a9561be5acbc60697bff01014dd4a6f1ef&amp;=&amp;width=240&amp;height=32" 
 alt="Image"/> <img src="https://media.discordapp.net/attachments/1362932201246953625/1482106972890202323/2a328b1ed46809bfb11c61ff32b3c025c991e77f.gifv.gif?ex=69b5bf2e&amp;is=69b46dae&amp;hm=8409f13fe7c98547897f823eae95e42920eaba902e3909400c00260f73c60f43&amp;=&amp;width=240&amp;height=32"
-alt="Image"/> <img src="https://media.discordapp.net/attachments/1362932201246953625/1482106978128891953/77e2f7993d15b058047c88f192ff4cb688d049e3.gifv.gif?ex=69b5bf2f&amp;is=69b46daf&amp;hm=8397e2c610e65b405be6fd40be13f0e2b401ceace6ed73af4993676e4c2a92a9&amp;=&amp;width=240&amp;height=32" 
-                                                                                                                                  alt="Image"/> <img src="https://blinkies.cafe/b/display/0080-genderfluid.gif" alt="genderfluid pride blinkie"/> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/fb56854a-184e-4c98-aac5-5ac9681e3df9" />
+alt="Image"/>
+
+  
+<img src="https://media.discordapp.net/attachments/1362932201246953625/1482106978128891953/77e2f7993d15b058047c88f192ff4cb688d049e3.gifv.gif?ex=69b5bf2f&amp;is=69b46daf&amp;hm=8397e2c610e65b405be6fd40be13f0e2b401ceace6ed73af4993676e4c2a92a9&amp;=&amp;width=240&amp;height=32" alt="Image"/> <img src="https://blinkies.cafe/b/display/0080-genderfluid.gif" alt="genderfluid pride blinkie"/> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/fb56854a-184e-4c98-aac5-5ac9681e3df9" />
 
 <img src="https://images-ext-1.discordapp.net/external/FNtQLslUyD22rwI87kt6SiLjRLNcCiFXINwf4tpwf7I/https/64.media.tumblr.com/d421e110aa00d20508dc2ac452caedbf/d6d33a713f7452cb-a7/s2048x3072/34b94e0fa5c9a149acc7e3f77c90f546f18ffe65.pnj?format=webp&amp;width=1843&amp;height=139" alt="Image"/> 
 
