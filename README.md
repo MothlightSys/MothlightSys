@@ -85,8 +85,10 @@ main host , very frequent fronter
 <p align="center">
 Creds to:
 
-<p align="center">
-@PinkiePieExplosion on GitHub for the Repository creation.
+<div align="center">
+  
+Credit to [PinkiePieExplosion](https://github.com/PinkiePieExplosion) for this ReadMe creation.
+</div>
 
 <p align="center">
 @Hxrlequinn on GitHub for finding the pictures & ect.
