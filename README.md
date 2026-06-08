@@ -33,8 +33,6 @@ main fronter with regect 99.9% of the time
 
 <img src="https://images-ext-1.discordapp.net/external/TUWYgsljXebm42Z6Ot2pibixnTZw13WRZOLxw95F0kA/https/64.media.tumblr.com/7463c9ef87b540c728b4ee0bd4f1ca88/6d3b71bf33c7ffaf-27/s1280x1920/4249da2b27566dc189fef762c92a795cac6a70f3.pnj?format=webp&amp;width=1843&amp;height=107" alt="Image"/>
 
-<img src="https://media.discordapp.net/attachments/1322396869149855826/1481781577313812672/1000041827-removebg-preview.png?ex=69b49022&amp;is=69b33ea2&amp;hm=1be56ad60491a71cff3c9e498570ad2ba243c2ffff97a7c4bcedaad2f869f176&amp;=&amp;format=webp&amp;quality=lossless&amp;width=1600&amp;height=320" alt="Image"/>
-
 -----------------------
 
 <p align="center">
