@@ -79,7 +79,7 @@ Creds to:
 
 <div align="center">
   
-Credit to [PinkiePieExplosion](https://github.com/PinkiePieExplosion) for this ReadMe creation.
+Credit to [Shepherd](https://github.com/PinkiePieExplosion) for this ReadMe creation.
 </div>
 
 <p align="center">
