@@ -12,7 +12,7 @@
 
 
 <p align="center">
-Intro for Kai!
+~~ COVEN ~~
 
 <p align="center">
 18y/o !! Taken / closed
@@ -24,10 +24,12 @@ very socially awkward + anxious
 <img src="https://files.catbox.moe/t00vjl.gif"/>
 
 <p align="center">
-feel free to interact if youd like, cxh is usually okay just don't cover me! other names to recognize me by is Saturn or siren ^_^
+feel free to interact if youd like, cxh is usually okay just don't cover me! other Aliases I go by are Basil/Hypno!!
 
 <p align="center">
 main fronter with regect 99.9% of the time
+
+
 
 <p align="center">
 " *Sometimes the humor of a bitter god loses all its novelty.* "
@@ -50,6 +52,8 @@ alt="Image"/>
 " *All I ever wanted* "
 
 
+
+
 <p align="center">
 ~~ PEST/CRIMSON ~~
 
@@ -66,8 +70,10 @@ feel free to sit with me if you'd like. im not good socially and tend to be awkw
 <p align="center">
 main host , very frequent fronter
 
+
+
 <p align="center">
-" *Buried far away from you.* "
+" Buried far away from you. "
 
 <img src="https://images-ext-1.discordapp.net/external/FNtQLslUyD22rwI87kt6SiLjRLNcCiFXINwf4tpwf7I/https/64.media.tumblr.com/d421e110aa00d20508dc2ac452caedbf/d6d33a713f7452cb-a7/s2048x3072/34b94e0fa5c9a149acc7e3f77c90f546f18ffe65.pnj?format=webp&amp;width=1843&amp;height=139" alt="Image"/>
 
